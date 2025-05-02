@@ -1,2 +1,2 @@
-# rajendra02022.github.io
+# Dhirajpatil18.github.io
 My Portfolio
